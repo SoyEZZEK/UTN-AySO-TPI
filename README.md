@@ -38,7 +38,7 @@ Se abordaron dos grandes áreas:
 
 ## Video explicativo
 
-🎥 [Ver video en YouTube](https://www.youtube.com/watch?v=REEMPLAZAR_CON_LINK)
+🎥 [Ver video en YouTube](https://www.youtube.com/watch?v=xePYrEhMzLc)
 
 ---
 
